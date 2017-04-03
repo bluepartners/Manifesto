@@ -24,7 +24,7 @@ How do you see yourself in 5 years? Helping professionals with their growth, in 
 ***
 **5. TRANSPARENCY IS THE FIRST SIGN OF A RELIABLE JOB OFFER**
 
-“A prestigious international company is looking for a motivated professional; salary commensurate with experience” is the incipit of too many job posts. Being transparent since the beginning about the company, the proposed role, the skills required and the available salary is the only parameter to assesses the reliability of a company. Jaguar28 shares working proposals only from companies interested in talking immediately about these topics.
+“A prestigious international company is looking for a motivated professional; salary commensurate with experience” is the incipit of too many job posts. Being transparent since the beginning about the company, the proposed role, the skills required and the available salary is the only parameter to assess the reliability of a company. Jaguar28 shares working proposals only from companies interested in talking immediately about these topics.
 ***
 **6. BEING CLEAR ABOUT THE PROJECT IS THE KEY TO ATTRACT TALENT**
 
