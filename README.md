@@ -28,7 +28,7 @@ How do you see yourself in 5 years? Helping professionals with their growth, in 
 ***
 **6. BEING CLEAR ABOUT THE PROJECT IS THE KEY TO ATTRACT TALENT**
 
-The first impression is what counts. During a career transition, a professional must be able to easily get all the elements to assess his interest in the new professional project. Jaguar28 helps companies in developing selection process in which the candidate can deal directly with potential managers and colleagues in order to know almost everything about the potential future employer.
+The first impression is what counts. During a career transition, a professional must be able to easily get all the elements to assess his/her interest in the new professional project. Jaguar28 helps companies in developing selection processes in which the candidate can deal directly with potential managers and colleagues in order to know almost everything about the potential future employer.
 ***
 **7. SKILLS AND SALARIES GROW TOGETHER**
 
@@ -40,7 +40,7 @@ The difference between Java and JavaScript is the same between apple and pineapp
 ***
 **9. A FEEDBACK ON THE INTERVIEW IS ALWAYS MANDATORY**
 
-Do ut des. From the beginning of the process, all the information that is not shared among the actors is a potential mutual improvement that is wasted. In this direction, Jaguar28 promotes a transparent system of rapid and guaranteed feedback, between professionals and companies so that the formers can have ideas on their professional development and the latters have an effective feedback on their modus operandi.
+Do ut des. From the beginning of the process, all the information that is not shared among the actors is a potential mutual improvement that is wasted. In this direction, Jaguar28 promotes a transparent system of rapid and guaranteed feedback between professionals and companies so that the former can have ideas on their professional development and the latter have an effective feedback on their modus operandi.
 ***
 **10.SOMETHING MISSING?**
 
