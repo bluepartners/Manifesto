@@ -49,10 +49,3 @@ We wrote a dynamic Manifesto, where we collected the main topics that generate t
 ### WHAT IS JAGUAR28?
 
 Jaguar28 is a Made in Italy project which connects professionals and companies sharing a common view of the tech industry. Every month, members can enjoy exclusive benefits in a recruiter-free community and, if interested, get in touch with companies that respect our Manifesto.
-
-### HOW CAN I JOIN?
-
-Everyone is welcome to join our community: we have public channels on Slack where we talk about technology, innovation and news. Once you are in, you can request access to the private channels by filling the registration form. Otherwise, if you are not interest in being an active user of our community you can simply subscribe to our newsletter:
-
-
-[![](http://d2.alternativeto.net/dist/icons/slack_59044.png?width=64&height=64&mode=crop&upscale=false)](https://goo.gl/uBOshP) [![](https://cdn.zapier.com/storage/services/5c727288d9c2f69a9eee136c5f5a0f72.64x64.png)](http://eepurl.com/cEvQPv)
