@@ -1,4 +1,4 @@
-# Jaguar28 Manifesto: 9 points for rewriting the relation between companies and tech professionals.
+# Our Manifesto: 9 points for rewriting the relation between companies and tech professionals.
 
 ![](https://cdn-images-1.medium.com/max/800/1*bqgiR018SkKeejcLGwtbGQ.png)
 
