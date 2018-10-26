@@ -49,3 +49,8 @@ We wrote a dynamic Manifesto, where we collected the main topics that generate t
 ### WHAT IS JAGUAR28?
 
 Jaguar28 is a Made in Italy project which connects professionals and companies sharing a common view of the tech industry. Every month, members can enjoy exclusive benefits in a recruiter-free community and, if interested, get in touch with companies that respect our Manifesto.
+
+
+
+
+
