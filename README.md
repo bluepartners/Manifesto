@@ -45,15 +45,3 @@ Do ut des. From the beginning of the process, all the information that is not sh
 **10.SOMETHING MISSING?**
 
 We wrote a dynamic Manifesto, where we collected the main topics that generate the asymmetry between companies and professionals. If you think something is missing or needs more details, feel free to tell us your comments by writing to: hello@jaguar28.com
-***
-### WHAT IS JAGUAR28?
-
-Jaguar28 is a Made in Italy project which connects professionals and companies sharing a common view of the tech industry. Every month, members can enjoy exclusive benefits in a recruiter-free community and, if interested, get in touch with companies that respect our Manifesto.
-
-
-
-
-
-
-
-
