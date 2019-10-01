@@ -43,3 +43,4 @@ The difference between Java and JavaScript is the same between apple and pineapp
 Do ut des. From the beginning of the process, all the information that is not shared among the actors is a potential mutual improvement that is wasted. In this direction, Jaguar28 promotes a transparent system of rapid and guaranteed feedback between professionals and companies so that the former can have ideas on their professional development and the latter have an effective feedback on their modus operandi.
 ***
 
+Are you interested in our activities? Contact us at hello@pops-tech.com
