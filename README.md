@@ -8,31 +8,31 @@ We wrote a Manifesto with the goal of creating guidelines able to make the encou
 ***
 **1. TALENT MUST BE EMPHASIZED UNDER EVERY FORM**
 
-Information technology is a new form of art. Being able to shape reality through technology is a talent that must be emphasized within the context in which it is expressed. Jaguar28 wants to facilitate this process by setting standards for both the recruiting and the conditions in which the day-to-day activities take place.
+Information technology is a new form of art. Being able to shape reality through technology is a talent that must be emphasized within the context in which it is expressed. Blue Partners wants to facilitate this process by setting standards for both the recruiting and the conditions in which the day-to-day activities take place.
 ***
 **2. AN INSPIRING WORKING ENVIRONMENT IS THE CRADLE OF INNOVATION**
 
-Chaplin’s “Modern Times” are sometimes still actual. Professionals must be able to work in environments that are stimulating and able to canalize most of their creativity and their skills while also ensuring “room for decompression”. To do so, Jaguar28 collects the best practices globally and shares them with companies, helping to capitalize their peculiarities.
+Chaplin’s “Modern Times” are sometimes still actual. Professionals must be able to work in environments that are stimulating and able to canalize most of their creativity and their skills while also ensuring “room for decompression”. To do so, Blue Partners collects the best practices globally and shares them with companies, helping to capitalize their peculiarities.
 ***
 **3. GOOD PROCESS MANAGEMENT IS THE BASIS OF AN EFFECTIVE ORGANIZATION**
 
-Well begun is half done. Today we can benefit of working methodologies able to enhance the quality of the output that are now a fundamental element of every successful company. Jaguar28 is committed to work with organizations that use these methods whenever there is a chance.
+Well begun is half done. Today we can benefit of working methodologies able to enhance the quality of the output that are now a fundamental element of every successful company. Blue Partners is committed to work with organizations that use these methods whenever there is a chance.
 ***
 **4. PROFESSIONAL GROWTH HELPS THE COMPANY GROWING**
 
-How do you see yourself in 5 years? Helping professionals with their growth, in terms of competencies and responsibilities, is the best investment a company can do. Jaguar28 intends to support only companies able to offer structured career paths that provide continuing education, events and bonuses.
+How do you see yourself in 5 years? Helping professionals with their growth, in terms of competencies and responsibilities, is the best investment a company can do. Blue Partners8 intends to support only companies able to offer structured career paths that provide continuing education, events and bonuses.
 ***
 **5. TRANSPARENCY IS THE FIRST SIGN OF A RELIABLE JOB OFFER**
 
-“A prestigious international company is looking for a motivated professional; salary commensurate with experience” is the incipit of too many job posts. Being transparent since the beginning about the company, the proposed role, the skills required and the available salary is the only parameter to assess the reliability of a company. Jaguar28 shares working proposals only from companies interested in talking immediately about these topics.
+“A prestigious international company is looking for a motivated professional; salary commensurate with experience” is the incipit of too many job posts. Being transparent since the beginning about the company, the proposed role, the skills required and the available salary is the only parameter to assess the reliability of a company. Blue Partners shares working proposals only from companies interested in talking immediately about these topics.
 ***
 **6. BEING CLEAR ABOUT THE PROJECT IS THE KEY TO ATTRACT TALENT**
 
-The first impression is what counts. During a career transition, a professional must be able to easily get all the elements to assess his/her interest in the new professional project. Jaguar28 helps companies in developing selection processes in which the candidate can deal directly with potential managers and colleagues in order to know almost everything about the potential future employer.
+The first impression is what counts. During a career transition, a professional must be able to easily get all the elements to assess his/her interest in the new professional project. Blue Partners helps companies in developing selection processes in which the candidate can deal directly with potential managers and colleagues in order to know almost everything about the potential future employer.
 ***
 **7. SKILLS AND SALARIES GROW TOGETHER**
 
-Someone once said that “if you pay peanuts, you get monkeys”. We want to foster an ecosystem in which salaries are always aligned with the actual experience and expertise of each professional. To do so, Jaguar28 provides analysis and metrics of the labor market, both national and international, to help companies offering fair salaries to the new hires.
+Someone once said that “if you pay peanuts, you get monkeys”. We want to foster an ecosystem in which salaries are always aligned with the actual experience and expertise of each professional. To do so, Blue Partners provides analysis and metrics of the labor market, both national and international, to help companies offering fair salaries to the new hires.
 ***
 **8. FULLY UNDERSTAND THE JOB POSITION MAKES THE DIALOGUE EASIER**
 
