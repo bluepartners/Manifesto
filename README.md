@@ -36,11 +36,11 @@ Someone once said that “if you pay peanuts, you get monkeys”. We want to fos
 ***
 **8. FULLY UNDERSTAND THE JOB POSITION MAKES THE DIALOGUE EASIER**
 
-The difference between Java and JavaScript is the same between apple and pineapple. People contacting tech professionals must have the basic knowledge in order to build a coherent and credible discussion on the role and the background of the person. Jaguar28 helps company recruiters to acquire the know-how to properly filter the professional skills of each candidate and, as a result, propose only suitable roles.
+The difference between Java and JavaScript is the same between apple and pineapple. People contacting tech professionals must have the basic knowledge in order to build a coherent and credible discussion on the role and the background of the person. Blue Partners helps company recruiters to acquire the know-how to properly filter the professional skills of each candidate and, as a result, propose only suitable roles.
 ***
 **9. A FEEDBACK ON THE INTERVIEW IS ALWAYS MANDATORY**
 
-Do ut des. From the beginning of the process, all the information that is not shared among the actors is a potential mutual improvement that is wasted. In this direction, Jaguar28 promotes a transparent system of rapid and guaranteed feedback between professionals and companies so that the former can have ideas on their professional development and the latter have an effective feedback on their modus operandi.
+Do ut des. From the beginning of the process, all the information that is not shared among the actors is a potential mutual improvement that is wasted. In this direction, Blue Partners promotes a transparent system of rapid and guaranteed feedback between professionals and companies so that the former can have ideas on their professional development and the latter have an effective feedback on their modus operandi.
 ***
 
 Are you interested in our activities? Contact us at hello@pops-tech.com
